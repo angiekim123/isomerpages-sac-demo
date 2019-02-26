@@ -20,3 +20,5 @@ Our valued Customers and Stakeholders share their congratulatory messages here, 
 **Mr Chua Boon Chun**<br>
 Managing Director<br>
 Analytical Laboratories (Singapore) Pte Ltd
+
+*We would like to show our appreciation to all stakeholders.*
